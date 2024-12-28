@@ -1,5 +1,4 @@
-# A GENEALOGICAL HISTORY
-of the FELTON FAMILY
+# A GENEALOGICAL HISTORY OF THE FELTON FAMILY
 
 By WILLIAM REID FELTON
 
@@ -8,21 +7,13 @@ As They Appear on The Garter Plate of
 **Sir Thomas De Felton**  
 In St. George's Chapel, Windsor Castle, 1381.
 
-## A GENEALOGICAL HISTORY
-of the FELTON FAMILY
+## ANCESTORS AND DESCENDANTS OF LIEUTENANT NATHANIEL FELTON
 
-## ANCESTORS AND DESCENDANTS OF 
-LIEUTENANT NATHANIEL FELTON
-
-Who came to Salem, Massachusetts  
-from Great Yarmouth, England  
-in 1633
+Who came to Salem, Massachusetts from Great Yarmouth, England in 1633 
 
 WITH
 
-A brief history of some of the families that  
-intermarried with the Feltons during the  
-first 150 years residence in America
+A brief history of some of the families that intermarried with the Feltons during the first 150 years residence in America
 
 By WILLIAM REID FELTON  
 Sioux City, Iowa
@@ -35,37 +26,37 @@ Copyright 1935
 W. R. FELTON, Sioux City, Iowa  
 PRINTED IN U. S. A.
 
-TABLE OF CONTENTS
+## TABLE OF CONTENTS
 
-1633–1935 .............................................. 7  
-Special Credits ....................................... 9  
-Our English Ancestors ................................ 11  
-Introduction from The Book of Cyrus Felton ......... 59  
-First Generation ....................................... 71  
-Second Generation ..................................... 73  
-Third Generation ...................................... 77  
-Fourth Generation ..................................... 89  
-Fifth Generation ........................................ 115  
-Sixth Generation ....................................... 165  
-Seventh Generation .................................... 219  
-Eighth Generation ..................................... 289  
-Ninth Generation ....................................... 353  
-Tenth Generation ...................................... 384  
+* [1633–1935](#1633—1935)
+* [Special Credits](#special-credits)
+* [Our English Ancestors](#our-english-ancestors)
+* [Introduction from The Book of Cyrus Felton](#introduction-from-the-book-of-cyrus-felton)
+* [First Generation](#first-generation)
+* [Second Generation](#second-generation)
+* [Third Generation](#third-generation)
+* [Fourth Generation](#fourth-generation)
+* [Fifth Generation](#fifth-generation)
+* [Sixth Generation](#sixth-generation)
+* [Seventh Generation](#seventh-generation)
+* [Eighth Generation](#eighth-generation)
+* [Ninth Generation](#ninth-generation)
+* [Tenth Generation](#tenth-generation)
 
 APPENDIX A  
-Autobiography written by Samuel Morse Felton ....... 389  
+* [Autobiography written by Samuel Morse Felton](#autobiography-written-by-samuel-morse-felton)
 
 APPENDIX B  
-The Feltons of New Virginia, Iowa ................... 397  
-The German Felton Family of Pennsylvania ............ 397  
-Revolutionary War Records ............................ 398  
-The Feltons of North Carolina and Georgia ........... 398  
-Captain William Trask and some of his descendants .. 400  
-Lost Members ........................................... 402  
-War Records ............................................ 402  
-Migration .............................................. 403  
-Peabody Institute Narrative ............................ 404  
-The Samuel M. Felton Resolution ....................... 405  
+* [The Feltons of New Virginia, Iowa](#the-feltons-of-new-virginia-iowa)
+* [The German Felton Family of Pennsylvania](#the-german-felton-family-of-pennsylvania)
+* [Revolutionary War Records](#revolutionary-war-records)
+* [The Feltons of North Carolina and Georgia](#the-feltons-of-north-carolina-and-georgia)
+* [Captain William Trask and some of his descendants](#captain-william-trask-and-some-of-his-descendants)
+* [Lost Members](#lost-members)
+* [War Records](#war-records)
+* [Migration](#migration)
+* [Peabody Institute Narrative](#peabody-institute-narrative)
+* [The Samuel M. Felton Resolution](#the-samuel-m-felton-resolution)
 
 
 # 1633 — 1935
@@ -183,28 +174,28 @@ In order that one who had served so well in Church and Commonwealth might not be
 
 The Parish Registers of St. Nicholas Church record the baptisms of twelve children of John Felton and his wife Margaret Manning. The eldest was a son, John, baptized 4 August, 1560 and the last a daughter, Judith, who was baptized 7 October, 1582. Of these children only four lived to maturity, three sons, John, Nicholas and Daniel who were living when their father’s will was made and a daughter, Dionis, who although twice married had died some years before her father. John Felton’s will was dated 8 March, 1601-2 only three days before his burial, but it is not a hastily prepared document for it goes into great detail as to his several bequests and genealogically is most valuable because it describes relationships very carefully and fully. His first care was for the Church of St. Nicholas toward the “reparation” of which he makes a bequest. Next he remembers the Lazar House and the poor of the Town. The preacher of the Church of St. Nicholas, Master Robert Jacler, and its minister, Master John Hill, are also remembered, but the House of Morning Prayer with the establishment of which he had been so intimately concerned during his last days is evidently very close to his Puritan heart. “I bequeath,” he says, “unto the continuation of the Prayer and Lecture lately begun in the new Chapel in Yarmouth ten
 
-TO THE GLORY OF GOD  
-AND IN MEMORY OF  
-JOHN FELTON  
-A CITIZEN OF GREAT YARMOUTH  
-AND A BENEFACTOR OF THIS CHURCH  
-AND PARISH.  
-HE REPRESENTED THIS ANCIENT BOROUGH  
-IN TWO OF QUEEN ELIZABETH'S PARLIAMENTS  
-AND THREE TIMES FILLED THE OFFICE  
-OF BAILIFF.  
-IN THE DAYS OF THE THREATENED  
-INVASION BY THE SPANISH ARMADA,  
-HE WAS APPOINTED TO RIDE TO LONDON  
-AND THERE CONCERTED MEASURES  
-WITH THE PRIVY COUNCIL  
-FOR THE TOWN'S DEFENCE.  
-A GREAT PART OF HIS LIFE AND MUCH  
-OF HIS WORLDLY SUBSTANCE  
-WERE DEVOTED TO THE GOOD OF THIS  
-HIS NATIVE PLACE.  
-HE WAS BURIED IN THE CHANCEL OF  
-THIS CHURCH 11 MARCH 1601.  
+> TO THE GLORY OF GOD  
+> AND IN MEMORY OF  
+> JOHN FELTON  
+> A CITIZEN OF GREAT YARMOUTH  
+> AND A BENEFACTOR OF THIS CHURCH  
+> AND PARISH.  
+> HE REPRESENTED THIS ANCIENT BOROUGH  
+> IN TWO OF QUEEN ELIZABETH'S PARLIAMENTS  
+> AND THREE TIMES FILLED THE OFFICE  
+> OF BAILIFF.  
+> IN THE DAYS OF THE THREATENED  
+> INVASION BY THE SPANISH ARMADA,  
+> HE WAS APPOINTED TO RIDE TO LONDON  
+> AND THERE CONCERTED MEASURES  
+> WITH THE PRIVY COUNCIL  
+> FOR THE TOWN'S DEFENCE.  
+> A GREAT PART OF HIS LIFE AND MUCH  
+> OF HIS WORLDLY SUBSTANCE  
+> WERE DEVOTED TO THE GOOD OF THIS  
+> HIS NATIVE PLACE.  
+> HE WAS BURIED IN THE CHANCEL OF  
+> THIS CHURCH 11 MARCH 1601.  
 
 This tablet is placed here by the descendants in  
 the United States of America of his great-grandson,  
